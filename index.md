@@ -1,6 +1,3 @@
-##Kim jestem
-
-
 To ja
 
 
